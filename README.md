@@ -1,1 +1,2 @@
-https://cdn.discordapp.com/attachments/1501990019135443188/1502017336188731402/REWAFFLUTION_ZERENOWSKIY.gif?ex=69fe2e27&is=69fcdca7&hm=b41521a8877a1978e119f5cd5641e644e3790c4d0851bc88a60ae78b5851b0d0&
+<div align="center">
+<img width="1080" height="602" alt="изображение" src="https://github.com/user-attachments/assets/5b22156c-2e9c-471a-bbf4-1b40288427a7" />
